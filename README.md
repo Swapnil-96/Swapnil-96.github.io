@@ -1,1 +1,1 @@
-# swapnilsuman.github.io.
+# swapnilsuman.github.io
